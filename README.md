@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **amritamamogh18@gmal.com**
 
-- 📄 Know about my experiences [to be added](to be added)
+- 📄 Know about my experiences https://drive.google.com/file/d/1KWwe7pE9w6Pie5XkjHXOCQP3P0LxDKoo/view?usp=drive_link
 
 - ⚡ Fun fact **I work better with music (I don't)**
 
